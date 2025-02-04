@@ -10,4 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on anything
 - 🤔 I’m looking for help with everything
 - 📫 How to reach me: Jlope040@odu.edu
+- I would really like to get into making video games and learn about artificial intelligence.
 -->
